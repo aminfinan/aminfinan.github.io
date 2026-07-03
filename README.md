@@ -1,1 +1,0 @@
-# aminfinan.github.io
